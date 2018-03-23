@@ -12,7 +12,7 @@
   *  6 cucharadas de leche
   *  6 cucharadas de aceite
   *  1/2 de taza de trozos de chocolate (más o menos grandes)
-  *  2 chorro pequeño de extracto de canela
+  *  1 chorro pequeño de extracto de vainilla CONFLICTO
 
 ## Cómo hacer el bizcocho microondas o Mug cake en 3 minutos:
 
